@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @DanielTDGames
+- 🌱 I’m currently learning VERY Basic Codes
+- 📫 How to reach me danieltdgames2@gmail.com
